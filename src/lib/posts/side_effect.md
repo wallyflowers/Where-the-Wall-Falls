@@ -5,7 +5,7 @@ date: "2024-12-12"
 ---
 
 A post hoc pooled subgroup analysis of 1573 patients ruled
-That a statistically significant baseline anxiety by treatment interaction was observed for the Montgomery–Åsberg Depression Rating Scale (P = 0.0152).
+that a statistically significant baseline anxiety by treatment interaction was observed for the Montgomery–Åsberg Depression Rating Scale (P = 0.0152).
 My body pulses with the same foreign material.
 Do I belong with them?
 With each passing day, I feel less and less like *anyone*.
