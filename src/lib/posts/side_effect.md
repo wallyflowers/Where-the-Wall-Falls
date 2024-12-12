@@ -16,7 +16,7 @@ Which Doctor has the strength to weigh these trauma?
 It is the rare *hero* that can shoulder responsibility beyond the creeping foundations of "Occasional difficulties in collecting one's thoughts" or a 4/6 in 'Lassitude'.
 Do I have to become that hero to gain entry to life?
 My experience is here! This is me! I want to shout. I want to sit and describe the way my moods crash like waves, tunneling strange caves and cliffs into my shoreline. I want to pour pages of reflection into the collective consciousness. Don't you see?! At this rate, we will never keep up! The mind is not a bone. Do you not have a mind? Do you not see how it is *all we are*?!
-But I know that 6 bits is the professional standard to share how I feel.
+But I know that 30 bits is the professional standard to share how I feel.
 The rest *must* be a side effect.
 
 Or worse, 
